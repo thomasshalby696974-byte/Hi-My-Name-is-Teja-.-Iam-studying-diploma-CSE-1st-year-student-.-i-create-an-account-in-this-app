@@ -1,2 +1,2 @@
-# Hi-My-Name-is-Teja-.-Iam-studying-diploma-CSE-1st-year-student-.-i-create-an-account-in-this-app
-I dont have any skill but iam learning  python  after 3rd year of diploma iwill know about pthon. I create an Calucate app with python but i see and do it for normally i dont who to create an app but i must learn to create app because i want to create an app on own and i want  to create an jarvis ai agent . i want to join google at the age of 22
+# Hi-My-Name-is-Teja-.-Iam-studying-diploma-CSE-1st-year-student- mmy age is 16 year old boy
+I dont have any skill but iam learning  python at starting of diploma college form the  begginering.I create an Calucate app with python but i see and do it for normally i dont who to create an app but i must learn to create app because i want to create an app on own and i want  to create an jarvis ai agent . i want to join google at the age of 22
